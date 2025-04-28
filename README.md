@@ -1,3 +1,3 @@
 ## Hi
 
-I got extension bruh :O
+I got extensions :O
